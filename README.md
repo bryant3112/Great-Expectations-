@@ -1,1 +1,1 @@
-# Great-Expectations-
+# Great-Expectations-My dream job is to become a Controls Engineer because I enjoy working with Automation, robotics, and technology. I want to use my knowledge of robotics and automation, along with software development, to program and control industrial systems. Becoming a Controls Engineer will allow me to continue learning and use both hardware and software to solve real-world problems.
